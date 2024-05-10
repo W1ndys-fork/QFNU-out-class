@@ -4,4 +4,4 @@
 
 本页面二维码
 
-![image](https://github.com/W1ndys-fork/QFNU-out-class/assets/109416673/1df0f96e-905f-4099-859a-adea97cf4fe9)
+![image](https://github.com/W1ndys-fork/QFNU-out-class/assets/109416673/9ca3902f-1efb-4ea2-a008-a073391debb2)
